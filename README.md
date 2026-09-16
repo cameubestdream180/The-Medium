@@ -224,4 +224,4 @@ The Medium is offered as a completely free version with all features and updates
 Get ready to delve into the mysteries of The Medium. Download it today and experience the chilling adventure for yourself!
 
 ---
-**Last updated:** 2026-09-15 22:04:42 UTC
+**Last updated:** 2026-09-16 01:16:50 UTC
